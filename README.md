@@ -1,9 +1,9 @@
 - 👋 Hi, I’m @clairebear0508
 - 👀 I’m interested in watching anime, playing RPG games, and coding :)
-- 🌱 I’m currently 15 years old 
+- 🌱 16 years old 
 - 💞️ I’m looking to collaborate on 🤔
 - 📫 How to reach me: clairechang0508@gmail.com
-- 😄 Pronouns: she
+- 😄 Pronouns: she, her, they
 - ⚡ Fun fact: I watched a LOT of animes!!!
 
 <!---
